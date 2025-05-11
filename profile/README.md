@@ -4,9 +4,9 @@
 
 ⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘↯⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙
 
-**[𝚛𝚎𝚐𝚊𝚛𝚍𝚎𝚛 𝚕𝚎 𝚏𝚒𝚕𝚖 :: ➥ "Sinneｒs 𝚂𝚝𝚛𝚎𝚊𝚖𝚒𝚗𝚐 𝚟𝚏 𝟸𝟶𝟸𝟻"](https://t.co/V887yrgVQl)**
+**[𝚛𝚎𝚐𝚊𝚛𝚍𝚎𝚛 𝚕𝚎 𝚏𝚒𝚕𝚖 :: ➥ "Sinneｒs 𝚂𝚝𝚛𝚎𝚊𝚖𝚒𝚗𝚐 𝚟𝚏 𝟸𝟶𝟸𝟻"](https://movie-247.com/fr/movie/1233413/sinners。GITHUB𓅯)**
 
-**[𝚛𝚎𝚐𝚊𝚛𝚍𝚎𝚛 𝚕𝚎 𝚏𝚒𝚕𝚖 :: ➥ "Sinneｒs 𝚂𝚝𝚛𝚎𝚊𝚖𝚒𝚗𝚐 𝚟𝚏 𝟸𝟶𝟸𝟻"](https://t.co/V887yrgVQl)**
+**[𝚛𝚎𝚐𝚊𝚛𝚍𝚎𝚛 𝚕𝚎 𝚏𝚒𝚕𝚖 :: ➥ "Sinneｒs 𝚂𝚝𝚛𝚎𝚊𝚖𝚒𝚗𝚐 𝚟𝚏 𝟸𝟶𝟸𝟻"](https://movie-247.com/fr/movie/1233413/sinners。GITHUB𓅯)**
 
 [![regarder_le_film_complet](https://image.tmdb.org/t/p/original/j7KqDRzjbvIjDv7cdHz9G3ZYEQy.jpg)
 
